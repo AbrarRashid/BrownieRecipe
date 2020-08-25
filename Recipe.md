@@ -1,0 +1,1 @@
+Put chicken in pan and cook.
