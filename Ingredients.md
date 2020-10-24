@@ -1,1 +1,1 @@
-Ingredients: Chicken and pan
+Ingredients: egg, flour, milk, water
