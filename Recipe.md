@@ -1,1 +1,1 @@
-Put chicken in pan and cook.
+Mix the egg, milk, flour and water and put it in a pan. Afterwards, put the pan in the oven and heat to 350 degrees. Wait 10-15 minutes and then take out the pan.
